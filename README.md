@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @luyufei1
 - 西安邮电在读
 - infj→isfj
-- 👀 kpop！ and enhypen！
+- 好好学习，天天向上！
 
 <!---
 luyufei1/luyufei1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
